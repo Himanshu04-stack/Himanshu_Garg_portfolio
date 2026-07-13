@@ -99,7 +99,7 @@ https://github.com/Himanshu04-stack
 
 LinkedIn
 
-(Add your LinkedIn URL)
+https://www.linkedin.com/in/himanshu-0004-garg
 
 ---
 
